@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jotr38487
-- 👀 I’m interested in heavy equipment and cryptocurrency
+- 👀 I’m interested in everything cryptocurrency
 - 🌱 I’m currently going on 5 years of studying cryptography
 - 💞️ I’m looking to COLLAB om nft and crypto
 - 📫 How to reach me jotr38487@gmail.com
